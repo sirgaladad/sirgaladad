@@ -6,7 +6,7 @@
 
 💞️ I'm looking to collaborate on open-source projects focused on adopting various AI technologies or any initiative aiming to improve process and automation with digital products. I'm especially interested in projects that leverage AR/VR to create immersive learning experiences.
 
-📧 How to reach me: You can shoot me an email at coreyboelkens@cobobots.com or follow me on LinkedIn at linkedin.com/in/sirgaladad.
+📧 How to reach me: You can shoot me an email at corey@cobobots.com or follow me on LinkedIn at linkedin.com/in/sirgaladad.
 
 😄 Pronouns: He/Him
 
